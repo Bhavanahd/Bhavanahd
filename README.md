@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Bhavana H D
+I am Bhavana H D,
 MBA in Finance and Business Analytics
 
 
