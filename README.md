@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm currently learning 
+I am Bhavana H D
+MBA in Finance and Business Analytics
 
 
 ## 🌐 Socials:
